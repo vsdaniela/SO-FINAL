@@ -2,6 +2,6 @@
 Link video:
 https://clipchamp.com/watch/csHQqMTq2U6
 
-[Explicacion](Explicacion.ppt)
+[Explicacion](Explicacion.pptx)
 
 
